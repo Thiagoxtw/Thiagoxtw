@@ -14,7 +14,7 @@ Se quiser trocar uma ideia ou acompanhar minha evolução, fique à vontade para
 
 ### REDES SOCIAS 
 
-[![Linkedlin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](www.linkedin.com/in/thiago-freitas-santana)
+[![Linkedlin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile)
 
 
 ### 🚀 Skills 
